@@ -12,7 +12,7 @@
 
 [Class 05](https://prescientperson.blogspot.com/p/blog-page.html)
 
-Class 06
+[Class 06](https://drive.google.com/file/d/120kiZtI7mbPtDHS2XBE1WGfAxqmbOlL5/view?usp=sharing)
 
 Class 07
 
