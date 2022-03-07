@@ -14,11 +14,11 @@
 
 [Class 06](https://drive.google.com/file/d/120kiZtI7mbPtDHS2XBE1WGfAxqmbOlL5/view?usp=sharing)
 
-Class 07
+[Class 07](https://prescientperson.blogspot.com/p/blog-page.html)
 
-Class 08
+[Class 08](https://drive.google.com/file/d/1RAg3lddtOxFQiw2VJZAS1Qbd8dMlwrtp/view?usp=sharing)
 
-Class 09
+[Class 09](https://drive.google.com/file/d/1faToj-9ZKlJN0ctTmTc6ED2PKYpijwMn/view?usp=sharing)
 
 Class 10
 
